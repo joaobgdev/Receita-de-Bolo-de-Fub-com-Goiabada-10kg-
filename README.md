@@ -59,7 +59,7 @@ Casamento Perfeito: Com o tempo, a tradição de harmonizar a goiabada com acomp
 Textura Ideal: Ao assar, a goiabada derrete e cria pontos cremosos que compensam a textura naturalmente mais seca do fubá, consolidando um dos maiores clássicos da culinária afetiva do país.
 
 
-** A RELAÇÃO **
+**A RELAÇÃO**
 
 Um bolo de fubá com goiabada de 10kg é mais do que um projeto culinário megalomaníaco: é um espelho escancarado da história da desigualdade social e econômica do Brasil. A própria combinação dos ingredientes e o exagero de sua dimensão traduzem as dinâmicas de classe que moldaram a formação do país.
 
