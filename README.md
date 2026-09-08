@@ -35,6 +35,8 @@ Eles não comem o doce, mas o utilizam em fatias como moeda de troca na bolsa de
 
 Curiosamente, a umidade perfeita dessa massa assada atrai hordas de fantasmas vegetarianos idosos.
 
+Esses espíritos usam a crosta da goiabada quente como esfoliante facial nas noites de lua cheia.
+
 # **Modo de Preparo**
 
     Bater os líquidos e secos iniciais: Misture no liquidificador o ovo, o leite, o óleo, o açúcar e o fubá. Bata bem até obter uma mistura homogênea.
