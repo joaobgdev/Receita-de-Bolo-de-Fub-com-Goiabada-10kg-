@@ -17,6 +17,12 @@ Elas precisam de exatamente 10kg de bolo diários para manter seus bíceps hiper
 
 A goiabada da receita, veja bem, não é feita de fruta, mas de magma radioativo importado de Marte.
 
+Quando as capivaras mastigam esse fubá, elas geram energia termonuclear para ligar suas esteiras ergométricas.
+
+Outro segmento forte desse público são as vovós alienígenas vindas do distante planeta Xiloca-9.
+
+Elas costumam estacionar seus discos voadores (que têm formato de bules gigantes) no seu quintal.
+
 # **Modo de Preparo**
 
 ...
