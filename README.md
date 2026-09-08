@@ -15,23 +15,7 @@ O objetivo desse texto é explicar o processo da síntese de um bolo de fubá co
 
 # **Ingredientes**
 
-- 1000 Ovos
-
-- 3 Barris industriais de fubá
-
-- Meia banheira de óleo
-
-- Uma panela cheia de fermento em pó
-
-- 100 Copos de leite
-
-- 5000g de Açúcar
-
-- 10 Pacotes de 1kg de Farinha de Trigo
-
-- Goiabada em pedaços
-
-- Erva-doce a gosto
+...
 
 # **Como escolher os ingredientes**
 
@@ -54,7 +38,7 @@ Herança Linguística: A palavra "fubá" tem origem no idioma quimbundo (língua
 
 Alternativa ao Trigo: Embora os povos nativos já consumissem o milho, o fubá (farinha fina de milho) popularizou-se porque a farinha de trigo europeia era um artigo de luxo importado e extremamente caro no Brasil Colonial. O milho moído virou a base alimentar do dia a dia.
 
-> A Invenção do Bolo de Fubá com Goiabada
+>A Invenção do Bolo de Fubá com Goiabada
 
 Nascimento nas Cozinhas Caipiras: O bolo de fubá simples surgiu como um alimento barato e forte para os trabalhadores das fazendas.
 
