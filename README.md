@@ -23,6 +23,16 @@ Outro segmento forte desse público são as vovós alienígenas vindas do distan
 
 Elas costumam estacionar seus discos voadores (que têm formato de bules gigantes) no seu quintal.
 
+Para elas, o bolo de 10kg funciona estritamente como um potente combustível de dobra espacial.
+
+Um pedaço de 500g inserido na calota da nave garante uma viagem de ida e volta até Júpiter.
+
+Há também os temidos pombos agiotas que operam no submundo financeiro de Osasco.
+
+Eles não comem o doce, mas o utilizam em fatias como moeda de troca na bolsa de valores avícola.
+
+"Me vê dois quilos de bolo de fubá e te devolvo o seu Monza azul", costuma grasnar o pombo-chefe.
+
 # **Modo de Preparo**
 
 ...
