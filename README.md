@@ -47,27 +47,52 @@ Esses espíritos usam a crosta da goiabada quente como esfoliante facial nas noi
 
 # **Ingredientes**
 
-- 1000 Ovos
-
-- 3 Barris industriais de fubá
-
-- Meia banheira de óleo
-
-- Uma panela cheia de fermento em pó
-
-- 100 Copos de leite
-
-- 5000g de Açúcar
-
-- 10 Pacotes de 1kg de Farinha de Trigo
-
-- Goiabada em pedaços
-
-- Erva-doce a gosto
+...
 
 # **Como escolher os ingredientes**
 
 ...
 
 # **Relação da desigualdade social ao bolo de fubá com goiabada de 10kg**
-...
+   Ponto inicial: A invenção da goiabada, do fubá e do bolo de fubá com goiabada:
+
+A amada combinação de fubá e goiabada é fruto do improviso e do encontro cultural entre povos indígenas, africanos e colonizadores europeus no Brasil Colonial.
+
+> A História da Goiabada
+
+Substituta da Marmelada: No período colonial, colonizadores portugueses tentaram reproduzir a tradicional marmelada europeia. Como o marmelo não prosperava no clima tropical, eles adaptaram a receita usando a goiaba — fruta nativa das Américas.
+
+Técnica de Conservação: Cozinhar a goiaba com o açúcar abundante dos engenhos locais tornou-se uma excelente forma de conservar a fruta por longos períodos para transporte.
+
+> A Origem do Fubá
+
+Herança Linguística: A palavra "fubá" tem origem no idioma quimbundo (língua banta falada em Angola) e significa simplesmente "farinha".
+
+Alternativa ao Trigo: Embora os povos nativos já consumissem o milho, o fubá (farinha fina de milho) popularizou-se porque a farinha de trigo europeia era um artigo de luxo importado e extremamente caro no Brasil Colonial. O milho moído virou a base alimentar do dia a dia.
+
+>A Invenção do Bolo de Fubá com Goiabada
+
+Nascimento nas Cozinhas Caipiras: O bolo de fubá simples surgiu como um alimento barato e forte para os trabalhadores das fazendas.
+
+Casamento Perfeito: Com o tempo, a tradição de harmonizar a goiabada com acompanhamentos caseiros (como o queijo) levou cozinheiras das regiões rurais de Minas Gerais e São Paulo a cortarem cubos de goiabada para misturar diretamente na massa.
+
+Textura Ideal: Ao assar, a goiabada derrete e cria pontos cremosos que compensam a textura naturalmente mais seca do fubá, consolidando um dos maiores clássicos da culinária afetiva do país.
+
+
+** A RELAÇÃO **
+
+Um bolo de fubá com goiabada de 10kg é mais do que um projeto culinário megalomaníaco: é um espelho escancarado da história da desigualdade social e econômica do Brasil. A própria combinação dos ingredientes e o exagero de sua dimensão traduzem as dinâmicas de classe que moldaram a formação do país.
+
+A Hierarquia dos Ingredientes: Abundância versus Subsistência
+
+O Fubá e a Comida de Pobreza: O milho moído historicamente serviu como a base alimentar acessível para populações indígenas, escravizadas e trabalhadores rurais. Por não exigir a importação cara do trigo europeu, o fubá tornou-se o carboidrato do povo — barato, nutritivo e associado à necessidade de subsistência.
+
+O Açúcar, a Terra e a Casa-Grande: A goiabada traz a marca da economia açucareira dos latifúndios coloniais. O açúcar era a mercadoria da elite dominantemente branca, mantida pela exploração do trabalho escravo. A goiabada nasceu no topo dessa pirâmide como uma forma de ostentar e preservar esse recurso valioso.
+
+A Dialética dos 10kg: Hiperabundância e Insegurança Alimentar
+
+A Caloria Barata da Modernidade: A capacidade de juntar 10kg de ingredientes ultraprocessados e refinados revela uma ironia moderna: o sistema econômico atual facilita o acesso em massa a calorias baratas (açúcar e carboidratos simples), enquanto o acesso a alimentos frescos e ricos em nutrientes continua restrito por barreiras financeiras.
+
+Espetáculo versus Fome: Fazer um bolo de 10kg transforma o alimento — histórico pivô de escassez e lutas sociais no Brasil — em um espetáculo de fartura. O contraste entre a capacidade de produzir um bolo monumental e a realidade da insegurança alimentar no país sintetiza como o acesso aos recursos permanece profundamente assimétrico.
+
+A mistura do fubá com a goiabada em escala gigante sintetiza a antropologia brasileira: a fusão da comida de resistência com o produto da exploração colonial, multiplicada pela lógica do consumo e do excesso contemporâneo.
