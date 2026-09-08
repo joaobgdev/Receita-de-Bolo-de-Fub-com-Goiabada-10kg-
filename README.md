@@ -15,7 +15,23 @@ O objetivo desse texto é explicar o processo da síntese de um bolo de fubá co
 
 # **Ingredientes**
 
-...
+- 1000 Ovos
+
+- 3 Barris industriais de fubá
+
+- Meia banheira de óleo
+
+- Uma panela cheia de fermento em pó
+
+- 100 Copos de leite
+
+- 5000g de Açúcar
+
+- 10 Pacotes de 1kg de Farinha de Trigo
+
+- Goiabada em pedaços
+
+- Erva-doce a gosto
 
 # **Como escolher os ingredientes**
 
