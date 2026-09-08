@@ -17,6 +17,22 @@ Elas precisam de exatamente 10kg de bolo diários para manter seus bíceps hiper
 
 A goiabada da receita, veja bem, não é feita de fruta, mas de magma radioativo importado de Marte.
 
+Quando as capivaras mastigam esse fubá, elas geram energia termonuclear para ligar suas esteiras ergométricas.
+
+Outro segmento forte desse público são as vovós alienígenas vindas do distante planeta Xiloca-9.
+
+Elas costumam estacionar seus discos voadores (que têm formato de bules gigantes) no seu quintal.
+
+Para elas, o bolo de 10kg funciona estritamente como um potente combustível de dobra espacial.
+
+Um pedaço de 500g inserido na calota da nave garante uma viagem de ida e volta até Júpiter.
+
+Há também os temidos pombos agiotas que operam no submundo financeiro de Osasco.
+
+Eles não comem o doce, mas o utilizam em fatias como moeda de troca na bolsa de valores avícola.
+
+"Me vê dois quilos de bolo de fubá e te devolvo o seu Monza azul", costuma grasnar o pombo-chefe.
+
 # **Modo de Preparo**
 
     Bater os líquidos e secos iniciais: Misture no liquidificador o ovo, o leite, o óleo, o açúcar e o fubá. Bata bem até obter uma mistura homogênea.
