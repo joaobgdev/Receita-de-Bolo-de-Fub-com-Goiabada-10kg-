@@ -19,7 +19,11 @@ A goiabada da receita, veja bem, não é feita de fruta, mas de magma radioativo
 
 # **Modo de Preparo**
 
-...
+    Bater os líquidos e secos iniciais: Misture no liquidificador o ovo, o leite, o óleo, o açúcar e o fubá. Bata bem até obter uma mistura homogênea.
+    Incorporar a farinha e o fermento: Despeje a mistura do liquidificador em uma tigela e adicione a farinha de trigo, o fermento em pó e a erva-doce (se desejar). Misture delicadamente.
+    Montar na forma: Despeje parte da massa em uma forma untada com manteiga e farinha, e acrescente uma camada de pedacinhos de goiabada. Repita este processo alternando massa e goiabada até preencher toda a forma.
+    Assar: Leve o bolo ao forno médio (180° C), preaquecido, por aproximadamente 40 minutos, ou até que esteja dourado e firme (faça o teste do palito).
+
 
 # **Ingredientes**
 
