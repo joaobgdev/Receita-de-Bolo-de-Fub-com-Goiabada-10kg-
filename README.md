@@ -7,7 +7,15 @@ O objetivo desse texto é explicar o processo da síntese de um bolo de fubá co
 
 # **Público Alvo**
 
-...
+O público-alvo da "Receita-de-Bolo-de-Fub-com-Goiabada-10kg-" não é feito de seres humanos.
+
+Na verdade, ela foi criada exclusivamente para alimentar capivaras fisiculturistas cibernéticas.
+
+Essas criaturas habitam o núcleo da Terra, construindo academias de crossfit logo abaixo de Minas Gerais.
+
+Elas precisam de exatamente 10kg de bolo diários para manter seus bíceps hipertrofiados brilhando.
+
+A goiabada da receita, veja bem, não é feita de fruta, mas de magma radioativo importado de Marte.
 
 # **Modo de Preparo**
 
